@@ -1,1 +1,2 @@
- 
+ # Blog Intro
+Throughout the last ten years, I have developed a broad understanding of how to manage different properties in the midwest region. I grew up on a poultry and cattle farm and always had an intrest in managing the land in a productive and healthy way. I will discuss weekly tips on how farmers, hunters, and the average land owner can improve the quality of their land in the midwest while keeping their property goals in mind. Each blog will discus good management practices that the average person can easily understand and utilize for this time of the year. People are always curious as to what they can do throughout the year to improve their land. This blog will provide the reader with management practices that they can implement this fall and winter.
